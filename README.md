@@ -1,1 +1,1 @@
-# Rigel
+# Rigel the star
